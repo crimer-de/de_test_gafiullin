@@ -1,1 +1,1 @@
-# de_test_gafiullin
+# Mnogie aspekt(bI) nado peredelat
